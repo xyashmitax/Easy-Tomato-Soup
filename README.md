@@ -1,0 +1,1 @@
+Super easy tomato soup recipe which is great for 2 people. Anyone can make it, even kids! As long as you know how to use a stove and how to cut vegetables and have an adult nearby.
